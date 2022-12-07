@@ -1,1 +1,1 @@
-# altynai.github.io
+# altynai02.github.com
